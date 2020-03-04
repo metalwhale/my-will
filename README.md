@@ -1,5 +1,5 @@
 # My will
-This is the list of songs which I want to listen to at my funeral (alphabetical order)
+This is the list of songs which I want played at my funeral (alphabetical order)
 
 ### Ai Kawashima
 - しおり
