@@ -203,3 +203,7 @@ This is the list of songs which I want played at my funeral (alphabetical order)
 
 ### その他
 - 刚好遇见你
+
+## BEQUESTS & REQUESTS
+After payment of all of personal debts, expenses and liabilities, I request and direct that my property be bequeathed as follows:
+I give, devise and bequeath all of the remaining and residual property I have ownership in at the time of my death, whether real property, personal property or both, of whatever kind and wherever situated to [@yuyuvn](https://github.com/yuyuvn) absolutely and entirely. In case of [@yuyuvn](https://github.com/yuyuvn) not be living, then I give, devise and bequeath all of the remaining and residual property I have ownership in at the time of my death, whether real property, personal property or both, of whatever kind and wherever situated to Vietnam government absolutely and entirely.
